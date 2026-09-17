@@ -218,3 +218,6 @@ Cyber Hunter is offered as a **full free version** with all features and updates
 ---
 
 Don't miss out on the action! **Download Cyber Hunter now and step into the arena of survival!**
+
+---
+**Last updated:** 2026-09-17 22:36:19 UTC
